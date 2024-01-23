@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology
 - 🌱 I’m currently learning Coding and Data Science
 - 💞️ I’m looking to collaborate on open-source projects related to Coding and Data Science.
-- 📫 How to reach me - On Linkdin [Prathibha Prakash]
+- 📫 How to reach me - On Linkedin [Prathibha Prakash]
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Ex- Cabin Crew
 
